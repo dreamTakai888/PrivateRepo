@@ -10,10 +10,10 @@ Client: https://mega.nz/file/bME2hKzK#1u0jEQgeaZpsEYJw_cmMAYXfau6c5e7zpj3KANnJ9g
 
 -Runes Of Magic Full Source Code 
 https://mega.co.nz/#!dsdSEJoQ!cMuUElPwBNU2p6MRSi6O_16YRQdHPB2UemOhs3s17JM
-Code:
+Password:
 D0M0ISGAYPIG
 https://mega.co.nz/#!J8Ny2Jpa!No2ITDJtaZRX93yuekBX-1igcZwdV_TgbYRiMiFepME
-Code:
+Password:
 YouAreG@yPigD0M0
 
 -
@@ -22,7 +22,7 @@ Passcode:
 Yuri-BR
 
 
--
+-Genshin
 server : https://www.123pan.com/s/M5w5Vv-MO9Ih.html // code: BY4a
 
 Client：https://www.123pan.com/s/M5w5Vv-WJ9Ih.html // code:RXuc
