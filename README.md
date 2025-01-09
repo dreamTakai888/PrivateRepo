@@ -32,10 +32,6 @@ https://anonfiles.com/k6v3Uaz5z8/HunZ_rar
 Passcode:
 Yuri-BR
 
-
--First Chase
-https://drive.google.com/drive/folders/1k5GclLdMlLkWosLZYrBWAe2-lvNz9glt
-
 -Agar.io
 https://mega.nz/#!4NoXwBSJ!1iw4mTjgIaljQSL5TlIWuPlIIzoctAsfckdcFxim2
 
