@@ -16,7 +16,7 @@ https://mega.co.nz/#!J8Ny2Jpa!No2ITDJtaZRX93yuekBX-1igcZwdV_TgbYRiMiFepME
 Password:
 YouAreG@yPigD0M0
 
--
+-HunZ
 https://anonfiles.com/k6v3Uaz5z8/HunZ_rar
 Passcode:
 Yuri-BR
@@ -24,10 +24,8 @@ Yuri-BR
 
 -Genshin
 server : https://www.123pan.com/s/M5w5Vv-MO9Ih.html // code: BY4a
-
 Client：https://www.123pan.com/s/M5w5Vv-WJ9Ih.html // code:RXuc
 Make up a usable Android client : https://www.123pan.com/s/M5w5Vv-Cu9Ih.html /// code : qYAN
-
 
 
 -First Chase
