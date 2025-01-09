@@ -27,6 +27,9 @@ https://mega.co.nz/#!J8Ny2Jpa!No2ITDJtaZRX93yuekBX-1igcZwdV_TgbYRiMiFepME
 Password:
 YouAreG@yPigD0M0
 
+-First Chase
+https://drive.google.com/drive/folders/1k5GclLdMlLkWosLZYrBWAe2-lvNz9glt
+
 -HunZ
 https://anonfiles.com/k6v3Uaz5z8/HunZ_rar
 Passcode:
