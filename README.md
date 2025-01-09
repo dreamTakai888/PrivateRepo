@@ -20,3 +20,10 @@ YouAreG@yPigD0M0
 https://anonfiles.com/k6v3Uaz5z8/HunZ_rar
 Passcode:
 Yuri-BR
+
+
+-
+server : https://www.123pan.com/s/M5w5Vv-MO9Ih.html // code: BY4a
+
+Client：https://www.123pan.com/s/M5w5Vv-WJ9Ih.html // code:RXuc
+Make up a usable Android client : https://www.123pan.com/s/M5w5Vv-Cu9Ih.html /// code : qYAN
