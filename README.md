@@ -38,3 +38,6 @@ https://mega.nz/#!4NoXwBSJ!1iw4mTjgIaljQSL5TlIWuPlIIzoctAsfckdcFxim2
 
 -Journey to the West
 https://pan.baidu.com/s/1gGVu9bIghw-UyRQZGAnSEg pass:g36w
+
+-Ragnarok Origin
+https://pan.baidu.com/s/1W_48tMreWN_0bjMmQ3QsmQ
