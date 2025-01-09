@@ -35,3 +35,6 @@ https://drive.google.com/drive/folders/1k5GclLdMlLkWosLZYrBWAe2-lvNz9glt
 
 -Agar.io
 https://mega.nz/#!4NoXwBSJ!1iw4mTjgIaljQSL5TlIWuPlIIzoctAsfckdcFxim2
+
+-Journey to the West
+https://pan.baidu.com/s/1gGVu9bIghw-UyRQZGAnSEg pass:g36w
