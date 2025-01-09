@@ -1,8 +1,19 @@
 # akimitsu_takai
 My Private Data
 
+-Genshin
+Server : https://www.123pan.com/s/M5w5Vv-MO9Ih.html 
+// Passcode: BY4a
+Client：https://www.123pan.com/s/M5w5Vv-WJ9Ih.html
+// Passcode:RXuc
+Make up a usable Android client : https://www.123pan.com/s/M5w5Vv-Cu9Ih.html 
+// Passcode : qYAN
+
 -Awakening of Nations
 https://pan.baidu.com/s/1y6buzG9EjKF_2LyFaFxH8g?pwd=g8cy
+
+-Ragnarok Origin
+https://pan.baidu.com/s/1W_48tMreWN_0bjMmQ3QsmQ
 
 -Kart Rider
 Source: https://anonfiles.com/t6z8hd62q0/GoKart-1-master_zip
@@ -22,12 +33,6 @@ Passcode:
 Yuri-BR
 
 
--Genshin
-server : https://www.123pan.com/s/M5w5Vv-MO9Ih.html // code: BY4a
-Client：https://www.123pan.com/s/M5w5Vv-WJ9Ih.html // code:RXuc
-Make up a usable Android client : https://www.123pan.com/s/M5w5Vv-Cu9Ih.html /// code : qYAN
-
-
 -First Chase
 https://drive.google.com/drive/folders/1k5GclLdMlLkWosLZYrBWAe2-lvNz9glt
 
@@ -36,6 +41,3 @@ https://mega.nz/#!4NoXwBSJ!1iw4mTjgIaljQSL5TlIWuPlIIzoctAsfckdcFxim2
 
 -Journey to the West
 https://pan.baidu.com/s/1gGVu9bIghw-UyRQZGAnSEg pass:g36w
-
--Ragnarok Origin
-https://pan.baidu.com/s/1W_48tMreWN_0bjMmQ3QsmQ
